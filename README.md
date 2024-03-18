@@ -1,4 +1,4 @@
 # Teo-em
 
 
-Discord: teo.730
+Discord: teo.logo
